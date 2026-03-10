@@ -4,10 +4,10 @@
 - **Company Name:** GEENS BTP Services
 - **Directory:** geens_btp_services
 - **Address/Contact:** 
-  - �tudes Architecturale, Calcul de Structure, Construction, Conseil et Suivi.
+  - études Architecturale, Calcul de Structure, Construction, Conseil et Suivi.
   - +237 675-439-491 / 698-336-457
   - 
-  - Page � Entreprise de construction
+  - Page é Entreprise de construction
   - 
   - Bafoussam, Cameroon
   - 
